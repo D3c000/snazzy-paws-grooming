@@ -1,1 +1,0 @@
-# snazzy-paws-grooming
